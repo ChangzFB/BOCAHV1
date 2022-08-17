@@ -2,6 +2,7 @@
 SCRIPT MASIH PROSES PERBAIKAN 50%
 
 # CHANG
+Script Ini 100% Gratis, Tidak untuk di perjual belikan Ok🙏
 
 Cuma Bisa Berbuat Apa Yang Bisa Dibuat...!!!
 
